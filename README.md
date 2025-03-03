@@ -1,2 +1,6 @@
 # iie_1
-idk czemu ma problem
+nieważne ja jestem tępy
+
+zapisałem lokalnie w złym miejscu i mu się nie podobało 
+
+cierpienie
